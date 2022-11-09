@@ -4,7 +4,7 @@
 - 👀 Eu gosto de jogar e praticar esportes:basketball:
 -  Tenho 14 Anos
 - Grupo-Gabriel, Emerson, Michael e Pedro
-
+- Aqui no meu perfil tem todo o trabalho feito por nós 4
 #TheThinkerGroup
 :sunglasses:
 <!---
