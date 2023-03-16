@@ -2,7 +2,7 @@
 
 - 👋 Meu nome é **Gabriel**
 - 👀 Eu gosto de jogar e praticar esportes:basketball:
--  Tenho 14 Anos
+-  Tenho 9 Anos
 - Grupo-Gabriel, Emerson, Michael e Pedro
 - Aqui no meu perfil tem todo o trabalho feito por nós 4
 #TheThinkerGroup
