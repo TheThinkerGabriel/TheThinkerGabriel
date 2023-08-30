@@ -5,7 +5,6 @@
 -  Tenho 9 Anos
 - Grupo-Gabriel, Emerson, Pedrinho, Adan e Vitor André
 - Aqui no meu perfil tem todo o trabalho feito por nós 4
-#TheThinkerGroup
 :sunglasses:
 <!---
 TheThinkerGabriel/TheThinkerGabriel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
